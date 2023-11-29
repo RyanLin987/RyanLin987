@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+🐜 FJU統資碩一
+🐜 x56572000@gmail.com \
+
+
+
+
 <!--
 **RyanLin987/RyanLin987** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
